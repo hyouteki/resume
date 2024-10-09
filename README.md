@@ -1,0 +1,1 @@
+> Checkout my [resume](https://hyouteki.github.io/resume/)
